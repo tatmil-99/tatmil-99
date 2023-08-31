@@ -7,4 +7,4 @@
 - 💬 Ask me about my goals and other tech interests
 - 📫 How to reach me: tatmil99@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: [DigitalCrafts](https://www.digitalcrafts.com/) alum :mortar_board: 
+- ⚡ Fun fact: I love cats, coffee, and movies -- reading for fun too (sometimes)
