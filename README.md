@@ -1,4 +1,4 @@
-### Hi, I'm Tate :v: I'm a Python Developer.
+### Hi, I'm Tate :v: I'm a Programmer.
 
 - 🔭 I’m currently working on a [cover letter automator](https://github.com/tatmil-99/cover-letter-automator)
 - 🌱 I’m currently learning Python and backend development
